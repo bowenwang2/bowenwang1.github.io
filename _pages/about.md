@@ -12,7 +12,7 @@ I'm a graduate student of one year from LINGNAN university in HONGKONG,(https://
 My major of science in  crossing-disciplinary technologies.The class I major in the computer systems and programming basics,product process design and lmplementation,project management:concepts and tools.
 
 
-
+You can find my CV here:(…/assets/curriculum_vitae.pdf
 
 
 
